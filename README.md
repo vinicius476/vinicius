@@ -5,7 +5,8 @@ Vinicius Claudino De Souza
 
 (00001125131901sp@al.educacao.sp.gov.br)
 OBJETIVO
- ser biólogo 
+ ter um emprego bom conseguir me aposentar e ter minha
+ fazenda de agro negocio
 
 
 FORMAÇÃO ACADÊMICA
